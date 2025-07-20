@@ -4,4 +4,4 @@ All original works (lyrics, compositions, recordings, promotional materials) cre
 
 © 2025 Natalee Trevino. All rights reserved.
 
-This repository serves as an archive of registered or to-be-registered works, managed by Michael Thomas Widener.
+This repository serves as an archive of registered or to-be-registered works, managed by Michael Widener II.
